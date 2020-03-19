@@ -15,7 +15,7 @@ In my house we have seven people: me, my wife, three teenage kids, and my parent
 
 My wife is an experience nurse who has worked everything from nursing homes, to "the floor," to hospice.  She currently works as the nurse at a Children's Home in our area, housing young people awaiting foster homes, as well as people with Intellectual/Developmental Disabilities.  She's the most caring person I know by far, and she's smart as heck.  I trust her opinion more that anyone else's in my life.
 
-My daughter, Mollie, just turned 18 a month ago.  She's a senior in high school.  My oldest son is Daniel, who is 15, and my youngest is Seth, aged 13.  They are my greatest treasures.  They are smart and witty and talented, and also some of the most hilarious people I know.
+My daughter, Kate, just turned 18 a month ago.  She's a senior in high school.  My oldest son is John, who is 15, and my youngest is Tom, aged 13.  They are my greatest treasures.  They are smart and witty and talented, and also some of the most hilarious people I know.
 
 My Mom and Dad live with me due to health problems.  My Mom has Myasthenia Gravis, a neurological autoimmune disorder.  My Dad had a stroke just over a year ago, as well as a heart attack, triple bypass surgery, and a pacemaker put in back in August.  We have always had a good relationship, and frankly, we all really enjoy them living with us.
 
