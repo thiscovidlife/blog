@@ -4,13 +4,13 @@ title: Settling In
 ---
 **Day 4: Sunday, March 15**
 
-Aaron Chally was sick and didn't go to church, but Lori and his kids did.  I heard there were 28 or so people there.  I watched the sermon via Facebook Live.
+Aaron C was sick and didn't go to church, but Lori and his kids did.  I heard there were 28 or so people there.  I watched the sermon via Facebook Live.
 
-Seth and I watched _Outbreak_, a movie from the late 1990s about a pandemic.
+Tom and I watched _Outbreak_, a movie from the late 1990s about a pandemic.
 
-I texted with Rachel and Jess for a whilue.  Overally, they're doing okay.  Jess is still working, and so is Ben K., but it looks like they'll be shutting down his job soon.  Rachel can thankfully work from home.
+I texted with Anne and Louise for a while.  Overally, they're doing okay.  Louise is still working, and so is Ben K., but it looks like they'll be shutting down his job soon. Anne can thankfully work from home.
 
-It sucks that Jess can't come here if she gets scared (and how could I blame her for being scared?).
+It sucks that Louise can't come here if she gets scared (and how could I blame her for being scared?).
 
 I took the boys to Rec Park this afternoon.  It was cold and wet.  They wrestled almsto the entire way as we walked the trail around the park.  It was good for them to get some energy out, and also good for me to hear them laugh.
 

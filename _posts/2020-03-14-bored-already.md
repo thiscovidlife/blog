@@ -10,4 +10,4 @@ We sat around the house all day, constantly checking for news on social media an
 
 Missouri had 6 cases by the end of the day today.
 
-We're discussing moving the weight bench into our recently-cleaned garage, but Haley wants us to wait a week or so to see if this really pans out.
+We're discussing moving the weight bench into our recently-cleaned garage, but Dani wants us to wait a week or so to see if this really pans out.
