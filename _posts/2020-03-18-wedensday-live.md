@@ -4,7 +4,7 @@ title: Wednesday Live
 ---
 **Day 7: Wednesday, March 18**
 
-Today we launched American Bible Society's Armed Forces Ministry's new website.  It was super easy, but everyone was so impressed that there were no issues.  Big win for me.
+Today we launched a new website at work.  It was super easy, but everyone was so impressed that there were no issues.  Big win for me.
 
 I asked Kate not to go into work on Friday. Even though they will only have the drive through open, we just can't chance her bringing something home.  I feel terrible about it, but it could save lives here in our house.  The upside is that people want her shift because they need to work so badly.
 

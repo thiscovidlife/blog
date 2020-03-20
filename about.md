@@ -26,3 +26,5 @@ My wife, Dani, is an experience nurse who has worked everything from nursing hom
 My daughter, Kate, just turned 18 a month ago.  She's a senior in high school.  My oldest son is John, who is 15, and my youngest is Tom, aged 13.  They are my greatest treasures.  They are smart and witty and talented, and also some of the most hilarious people I know.
 
 My Mom and Dad live with me due to health problems.  My Mom has Myasthenia Gravis, a neurological autoimmune disorder.  My Dad had a stroke just over a year ago, as well as a heart attack, triple bypass surgery, and a pacemaker put in back in August.  We have always had a good relationship, and frankly, we all really enjoy them living with us.
+
+(We're all using codenames on this site)
