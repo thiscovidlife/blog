@@ -21,6 +21,6 @@ Senators Kelly Loeffler and Richard Burr were caught insider trading after they 
 Dani's mom just said she's also heard rumors of martial law at work.
 
 
-US: 14,340; 217 deaths
-MO: 41; 1 death
+US: 14,340; 217 deaths<br>
+MO: 41; 1 death<br>
 KS: 38, 1 death

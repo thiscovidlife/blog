@@ -8,7 +8,7 @@ Today we launched a new website at work.  It was super easy, but everyone was so
 
 I asked Kate not to go into work on Friday. Even though they will only have the drive through open, we just can't chance her bringing something home.  I feel terrible about it, but it could save lives here in our house.  The upside is that people want her shift because they need to work so badly.
 
-Saw an article today on CNN about why you should keep your money in the bank.  Nothing suspicious there.
+Saw an article today on CNN about [why you should keep your money in the bank](https://www.cnn.com/2020/03/18/economy/banks-cash-coronavirus/index.html).  Nothing suspicious there.
 
 Omaha is shutting down their Public Schools.  Classes will continue online.
 
@@ -22,6 +22,6 @@ The stock market dropped something like another 1,300 points, erasing all growth
 
 Blah.  This is going to be a long time, isn't it?
 
-US: 9,371; 153 deaths
-MO: 24; 1 death
+US: 9,371; 153 deaths<br>
+MO: 24; 1 death<br>
 KS: 23, 1 death

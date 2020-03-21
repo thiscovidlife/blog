@@ -24,6 +24,6 @@ Kansas shut down their public schools for the rest of the year.  They'll continu
 
 Jackson County  had its first two cases today.
 
-US: 6,411
-MO: 15
-KS: 18
+US: 6,411<br>
+MO: 15<br>
+KS: 18<br>

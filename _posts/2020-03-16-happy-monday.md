@@ -26,6 +26,6 @@ Tonight we just watched live trail cams together on YouTube.  We're all so stres
 
 Cass County has its first COVID-19 case now.
 
-US: 4,718
-MO: 8
-KS: 11
+US: 4,718<br>
+MO: 8<br>
+KS: 11<br>
