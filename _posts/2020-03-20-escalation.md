@@ -4,6 +4,7 @@ title: Escalation
 ---
 **Day 9: Friday, March 20**
 
+![Grocery Store](/public/img/2020-03-20-store.jpg)
 Went to the store this morning before work.  If/when they announce a lockdown around here, everyone's going to converge on the stores.  We got there around 7 (when they opened), and didn't get home until after 9.  We spent about 3x more than we usually do, mostly because we had to buy name brands as well as extras of a few things. We didn't hoard anything because there wasn't enough of anything on the shelves to hoard.
 
 Loaded up the shotgun and put it under my bed.  Dani usually shies away from guns, but she's the one who made the recommendation I bring it in the house.
@@ -24,6 +25,7 @@ Sounds like the National Guard is being activated, but I'm not sure.  Peopple ar
 
 There are more rumors that we will be on lockdown by the end of the weekend.
 
+![Legos](/public/img/2020-03-20-legos.jpg)
 I pulled out that Lego Millenium Falcon for the boys.  They've been doing nothing but playing Minecraft all week and their brains have turned to oatmeal.  When they're not playing, they're fighting, and sometimes they do both at the same time.
 
 We took the kids to Walmart to buy a few last things, including some ice cream.  Dani wanted them to see what things were like out in public.  The kids  haven't left the house all week, and I don't think they had a real appreciation for how things have changed.
